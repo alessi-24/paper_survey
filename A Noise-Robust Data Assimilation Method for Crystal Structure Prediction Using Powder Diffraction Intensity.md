@@ -2,7 +2,7 @@
 
 > Seiji Yoshikawa, Ryuhei Sato, Ryosuke Akashi, Synge Todo, and Shinji Tsuneyuki
 
-> preprint
+> The Journal of Chemical Physics
 
 ***
 **補足**
